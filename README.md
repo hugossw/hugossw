@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hugossw
+- 👋 Hi, I’m @hugossw iae sou o Victor tenho 15 anos da escola CEMACS sou 1° A numero 32 da chamada 
 - 👀 I’m interested in ...interessado 
 - 🌱 I’m currently learning ...estou apredendo como usar o github 
 - 💞️ I’m looking to collaborate on ...procuro colaborar com vocês 
